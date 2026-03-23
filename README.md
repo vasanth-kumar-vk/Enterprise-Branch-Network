@@ -149,7 +149,7 @@ enterprise-branch-network/
 **Vasanth Kumar**
 BCA — Vivekananda Institute of Management, Bengaluru, Karnataka
 📧 vasanthkumarvk2855@gmail.com
-🔗 [LinkedIn](https://linkedin.com/in/vasanthkumar) | [GitHub](https://github.com/vasanth-kumar-vk)
+🔗 [LinkedIn](https://linkedin.com/in/vasanth-kumar-vk55) | [GitHub](https://github.com/vasanth-kumar-vk)
 
 ---
 
